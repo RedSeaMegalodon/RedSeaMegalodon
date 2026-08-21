@@ -1,16 +1,14 @@
-## Hi there 👋
+<blockquote>
+  <p>
+    𝄞⨾𓍢ִ໋ It's filthy, disgusting, (੭ ;´ ⌂ `;)੭<br>
+    so ugly, i'm sure . . . ~𓈒 ຼ ͜𓐇˚ִִ𓈒꒱꒱
+  </p>
+</blockquote>
 
-<!--
-**RedSeaMegalodon/RedSeaMegalodon** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+<img src="https://files.catbox.moe/zq91je.png" width="100"><img src="https://files.catbox.moe/d61uz1.gif" width="100"><img src="https://files.catbox.moe/ou982x.gif" width="100">
 
-Here are some ideas to get you started:
+<img src="https://files.catbox.moe/v9w5h3.png" width="300" style="position: relative; right: 150px;">
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+<p align="left">
+  ⟢ ┄┄ ´ཀ` <a href="https://rentry.co/megamagelodon">rentry</a> 🚬 <a href="https://megalodon.atabook.org">ata</a> 友 <a href="https://megamegalodons.straw.page">strawpage</a> ✦ 
+</p>
