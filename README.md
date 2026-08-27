@@ -1,7 +1,7 @@
 <blockquote>
   <p>
-    𝄞⨾𓍢ִ໋ It's filthy, disgusting, (੭ ;´ ⌂ `;)੭<br>
-    so ugly, i'm sure . . . ~𓈒 ຼ ͜𓐇˚ִִ𓈒꒱꒱
+    .✦ ݁˖ Come back underneath the sheets, ૮ ◞ ﻌ ◟ ა<br>
+    Girl, you is my masterpiece ⊹ ࣪ ˖
   </p>
 </blockquote>
 
