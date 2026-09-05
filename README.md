@@ -10,5 +10,6 @@
 <img src="https://files.catbox.moe/mqivqj.png" width="300" style="position: relative; right: 150px;">
 
 <p align="left">
+<blockquote>
   ⟢ ┄┄ ´ཀ` <a href="https://rentry.co/megamagelodon">rentry</a> ͙͘͡★ <a href="https://megalodon.atabook.org">ata</a> 友 <a href="https://megamegalodons.straw.page">strawpage</a> ✦ 
 </p>
