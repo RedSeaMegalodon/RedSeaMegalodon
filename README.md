@@ -5,7 +5,7 @@
   </p>
 </blockquote>
 
-<img src="https://files.catbox.moe/zq91je.png" width="100"><img src="https://files.catbox.moe/d61uz1.gif" width="100"><img src="https://files.catbox.moe/ou982x.gif" width="100">
+<img src="https://files.catbox.moe/7fmbtd.png" width="100"><img src="https://files.catbox.moe/t5yegg.png" width="100"><img src="https://files.catbox.moe/3c9wk0.png" width="100">
 
 <img src="https://files.catbox.moe/mqivqj.png" width="300" style="position: relative; right: 150px;">
 
