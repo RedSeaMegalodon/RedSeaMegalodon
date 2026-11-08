@@ -17,5 +17,5 @@
 
 <p align="left">
 <blockquote>
-  .♱　 　  <a href="https://rentry.co/megamagelodon">rentry</a>   ͙͘͡𓏲 ๋࣭  ࣪ ˖   <a href="https://megalodon.atabook.org">ata</a>   ᡕᠵデᡁ᠊╾━   <a href="https://megamegalodons.straw.page">strawpage</a>   ݁　ᣟ݂ 𓏽ᣟ݂⊹
+  .♱　 　  <a href="https://rentry.co/megamagelodon">rentry</a>   ͙͘͡𓏲 ๋࣭  ࣪ ˖   <a href="https://megalodon.atabook.org">ata</a>   ᡕᠵデᡁ᠊╾━   <a href="https://aviesparrots.straw.page">strawpage</a>   ݁　ᣟ݂ 𓏽ᣟ݂⊹
 </p>
